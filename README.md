@@ -11,7 +11,7 @@
 
 https://drive.google.com/file/d/1PhWd3cVElysiY5qvrjhjLHGv-KUlXyj7/view?usp=drivesdk
 
-download & install within a minute.
+Click to download & install within a minute.
 
 User ID : admin
 
